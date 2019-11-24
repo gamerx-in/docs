@@ -1,7 +1,7 @@
 # Terms and Conditions
 
 1. Your level must be atleast 35 to participate in a PUBG match/tournament.
-2. No hacks an emulators are allowed. Hackers will be banned permanently from the platform and their earnings confiscated.
+2. No hacks an emulators are allowed. Hackers will be banned permanently from the platform and their earnings confiscated. We will decide what to do with his/hers winnings.
 3. Join the Custom Room before start time. We won't be responsible if you failed to join the match. Refund won't be processed.
 4. Match will start within 10 minutes of sharing Room ID and Password.
 5. Do not share your Room Id and Password with anyone.
