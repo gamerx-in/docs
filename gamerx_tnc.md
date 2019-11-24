@@ -52,3 +52,5 @@ There are these types of Games available:
 
 We will keep updating our terms and conditions. Please keep visiting the Terms and Conditions from time to time.
 For more queries, please contact us at help@gamerx.in.
+
+**Note** In any case of misunderstanding, GamerX decision will be final.
